@@ -1,4 +1,3 @@
-
 Please read these instructions out loud. 
 When you finish, explain what you have understood about the exercise.
 
